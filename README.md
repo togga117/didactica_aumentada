@@ -1,1 +1,0 @@
-# didactica_aumentada
